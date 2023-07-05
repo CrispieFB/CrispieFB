@@ -1,11 +1,11 @@
 # Hi there 👋
 ## Wow I finally made one of these...
-
+\
 ### Well hello there rando- names' Crispie and I'm completely and utterly mentally unhinged. I spend my life playing videogames, writing code, and simping for cars. 
-
-📨 **Discord** • crispie
-💀 **Pronouns** • He/Him
-⚡ **Fun Fact** • [My Opinion](https://www.youtube.com/watch?v=Vbw9vbZYHq0)
+\
+📨 **Discord** • crispie\
+💀 **Pronouns** • He/Him\
+⚡ **Fun Fact** • [My Opinion](https://www.youtube.com/watch?v=Vbw9vbZYHq0)\
 
 <!--
 **CrispieFB/CrispieFB** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
