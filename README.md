@@ -1,6 +1,6 @@
 # Hi there 👋
 ## Wow I finally made one of these...
-\
+
 ### Well hello there rando- names' Crispie and I'm completely and utterly mentally unhinged. I spend my life playing videogames, writing code, and simping for cars. 
 \
 📨 **Discord** • crispie\
