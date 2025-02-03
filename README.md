@@ -1,7 +1,7 @@
 # Hi there 👋
 ## Wow I finally made one of these...
 
-### Well hello there rando- names' Crispie and I'm completely and utterly mentally unhinged. I spend my life playing videogames, writing code, and simping for cars. 
+### This bio sucked so I deleted it, need you know more. 
 \
 📨 **Discord** • crispie\
 💀 **Pronouns** • He/Him\
